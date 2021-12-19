@@ -1,1 +1,1 @@
-hogehoge
+fugafugas
